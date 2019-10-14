@@ -1,2 +1,2 @@
 # PsLab
-Problems and Solutions Lab : 
+Problems and Solutions Lab : The Duality of Nature and Life...
